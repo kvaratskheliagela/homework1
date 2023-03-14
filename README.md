@@ -1,1 +1,1 @@
-# homework1
+davaleba rom damewera magistvis shevqmeni es idiotoba
